@@ -12,7 +12,7 @@ Celular: (61) 90000-0000
 
 Email: renataa.rcs@gmail.com
 
-Endereço: Qnn 8 conjunto i casa 1 Ceilândia sul, Brasilia-DF
+Endereço: Ceilândia sul, Brasilia-DF
 
 
 </div>
